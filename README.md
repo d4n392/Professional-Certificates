@@ -1,2 +1,2 @@
-# Professional-Certificates
-My professional course earned certificates
+# Professional Certificates
+My professional course-earned certificates
